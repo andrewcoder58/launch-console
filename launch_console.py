@@ -1,0 +1,1 @@
+https://www.cnn.com/2026/09/14/sport/sydney-sweeney-ad-backlash-scli-intl
